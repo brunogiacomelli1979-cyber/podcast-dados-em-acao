@@ -262,6 +262,8 @@ Profissional em transição para a área de **Dados, BI, Automação e Inteligê
 
 GitHub: [brunogiacomelli1979-cyber](https://github.com/brunogiacomelli1979-cyber)
 
+LinkedIn: [LinkedIn](https://www.linkedin.com/in/bruno-giacomelli-9b049934a/)
+
 ---
 
 ## 🏁 Conclusão
